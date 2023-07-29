@@ -29,7 +29,6 @@
 
 ## About me :
 * 🇷🇺 I'm from Russia (Omsk)
-* 🤍 Work in Greact
 * 🏋️‍♂️ Gym
 * 👨‍🏫 Omsk State University: **(2020-2024)**
 <br></br>
